@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EWL-create
+- 👋 Hi, I’m @EWL-create or Dr_Animalis at Scratch
 - 👀 I’m interested in code
 - 🌱 I’m currently learning coding
 - ⚡ Fun fact: i like chicken katsu
